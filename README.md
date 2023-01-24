@@ -1,0 +1,1 @@
+# RFM_analysis_-karpov_courses_semi_project-
